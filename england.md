@@ -11,3 +11,5 @@ The Chilterns are a range of hills
 So are the Mendips.
 
 Another Cumbrian mountain is Hellvellyn
+
+The Three Peaks are Ingleborough, Whernside, and Pen-y-ghent
