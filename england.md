@@ -4,6 +4,8 @@ Mountains
 The highest mountain in England is Scafell Pike
 It is in Cumbria
 
+So is Blencathra.
+
 Mount Fictional is 5000m high, it is in Kent
 
 The Chilterns are a range of hills
